@@ -3,7 +3,7 @@
 - for pt ; c+h , w2i if im away/busy , please dont copy!!
 - ask me about limp bizkit/wes borland!!!
 - bizkit fans add me!!!!!!!!!
-- check out my strawpage - sign ata - check out my spacehey!!
+- check out my strawpage - check out rentry - sign ata - check out spacehey!!
 - feel free to add my discord (@thewesborland)
 
 <!---
