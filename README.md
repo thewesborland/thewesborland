@@ -1,5 +1,5 @@
 - im wes :)
-- 16 - he/him - autistic - taken 11/11 - literally wes borland
+- 16 - he/him - autistic - literally wes borland
 - for pt ; c+h , w2i if im away/busy , please dont copy!! i get muted more than id like to admit
 - ask me about limp bizkit/wes borland!!!
 - bizkit fans add me!!!!!!!!!
