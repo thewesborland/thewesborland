@@ -4,7 +4,7 @@
 - ask me about limp bizkit/wes borland.
 - bizkit fans add me!!!!!!!!!
 - check out my other socials.
-- feel free to add my discord (@thewesborland) or instagram (literallyryanross) if you wanna chat.
+- feel free to add my discord (@thewesborland) or instagram (thewesleyborland) if you wanna chat.
 
 <!---
 thewesborland/thewesborland is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
