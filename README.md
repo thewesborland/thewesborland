@@ -1,10 +1,10 @@
 - im wes.
-- 16 . he/him . 12/13 <3
-- for ptL c+h. w2i if im away/busy. please dont copy. i get muted more than id like to admit.
-- ask me about limp bizkit/wes borland.
+- 17 . he/him/his . 12/13/24 <3
+- for pt, w2i if im away/busy. please dont copy. i get muted more than id like to admit.
+- urbexer.
 - bizkit fans add me!!!!!!!!!
 - check out my other socials.
-- feel free to add my discord (@thewesborland) or instagram (@bizkitfever) if you wanna chat.
+- feel free to add my discord (@thewesborland) or IG/TT (@bizkitfever) if you wanna chat.
 
 <!---
 thewesborland/thewesborland is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
